@@ -1,1 +1,1 @@
-# mail.nanao-a.com
+# cdn-1iydnsgn.cn.cloudcdnv1.cn
